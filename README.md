@@ -12,7 +12,7 @@
 
 如无法打开，请联系我：
 
-- VX：`ssssz11`  
+- VX：`sssssz11`  
 - telegram：[https://t.me/QuincyHung](https://t.me/QuincyHung)  
 ---
 
@@ -51,7 +51,7 @@
 
 ## 📬 有任何问题欢迎来撩！
 
-- VX：`ssssz11`  
+- VX：`sssssz11`  
 - telegram：[https://t.me/QuincyHung](https://t.me/QuincyHung)  
 
 ---
